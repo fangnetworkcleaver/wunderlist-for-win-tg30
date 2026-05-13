@@ -1,4 +1,4 @@
-# 
+# Enhance Wunderlist for Windows with Wunderlist for Windows updated Extension: cloud-sync & notifications, the #1 extension. Includes cloud-sync and notifications for a smoother
 
 
 
